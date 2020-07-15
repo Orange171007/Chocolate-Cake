@@ -6,7 +6,9 @@ Ingredients:
 For the cake
 
 225g/8oz plain flour
+
 350g/12½oz caster sugar
+
 85g/3oz cocoa powder
 1½ tsp baking powder
 1½ tsp bicarbonate of soda
